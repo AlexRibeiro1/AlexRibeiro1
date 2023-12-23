@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 work in the programming area
 - 🌱 I’m currently learning Python
-- 📫 How to reach me: alexmtt.ribeiro@gmail.com/ 71 996503969
+- 📫 How to reach me: alexmtt.ribeiro@gmail.com/ 71 982568938
 
 <!---
 
